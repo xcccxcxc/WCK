@@ -1,1 +1,1 @@
-WCKAAWC
+WCK
